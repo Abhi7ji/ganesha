@@ -1,1 +1,1 @@
-# ganesha
+# oh my friend Ganesha
